@@ -14,8 +14,6 @@ Don't hesitate to contact me if you want more information about them.
 www.linkedin.com/in/nimrod-ndoudi
   - Instagram: 
 https://www.instagram.com/nimrod_971/
-  - Facebook: 
-https://www.facebook.com/nimrod.nn7
   - Contact: 
 📧 ndoudi@et.esiea.fr
 📧 nimrodndoudi@gmail.com
