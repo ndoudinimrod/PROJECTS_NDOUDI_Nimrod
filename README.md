@@ -2,8 +2,8 @@
 <!--- 
 - 👀 I’m interested in ... 
 ---> 
-- 🌱 I’m currently learning in at ESIEA Paris in double degree called Master's degree: Information and systems security in ESIEA (BAC+6)
-- 💞️ I’m looking to collaborate on IT or commercial sector .
+- 🌱 I’m Engeener graduated in ESIEA Paris specialized in cyberecurityin ESIEA (BAC+5)
+- 💞️ I collaborated on Audit IT or Cyberecurity problematics...
 
 As you can see on my [Linknd](https://www.linkedin.com/in/nimrod-ndoudi), I realize some projects in differents sectors in my life.
 Here, you can find much of my IT projects.
